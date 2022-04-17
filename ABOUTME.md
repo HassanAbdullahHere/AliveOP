@@ -1,0 +1,13 @@
+- 👋 Hi, I’m @AliveOP, My real name is Hassan Abdullah. I am from Lahore,Punjab,Pakistan.
+- 
+- 👀 I’m interested in Programming, Problem Solving, Learning new stuff, Entrepreneurship, Creation, Communication and Good Relations.
+- 
+- 🌱 I’m currently a Computer Scinece Student @COMSATS, learning programming and development, isde hustle includes marketing, freelancing, learning Entrepreneurship.
+- 
+- 💞️ I’m looking to collaborate on Counseling, projects, Software Development etc, You can reach me to know further if I am interested to work with.
+- 
+- 📫 How to reach me:
+- Phone: +923438161002
+- Email: HassanAbdullahHere01@gmail.com
+- Linkedin: https://www.linkedin.com/in/hassan--abdullah/
+- WhatsApp: +923446122368
